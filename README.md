@@ -1,0 +1,1 @@
+# REALTY-OF-LEGALIZATION-Marijuana-legalization-impact-on-rental-prices-in-the-US
